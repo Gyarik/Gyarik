@@ -1,4 +1,7 @@
-### Hi there 👋
+### Welcome to my profile
+Or something like that idk I'm not a github influencer\
+\
+![fukc](https://c.tenor.com/bHoBdlvSB8YAAAAC/cope-cat.gif)
 
 <!--
 **Gyarik/Gyarik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
